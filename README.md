@@ -1,2 +1,2 @@
-# amidied
+# am i died?
 ## not today
